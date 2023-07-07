@@ -1,3 +1,2 @@
 # Yourmom
-Sus
 kys
